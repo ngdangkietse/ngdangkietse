@@ -1,3 +1,3 @@
-_**A man should look for what is, and not for what he thinks should be.**_
+_**'As I am, so are they; as they are, so am I.' Comparing others with oneself, do not kill nor cause others to kill.**_
 
-Albert Einstein
+The Buddha
